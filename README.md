@@ -1,4 +1,4 @@
-clients1.google.la/url?q=https://www.weightloss-social.com/
+https://clients1.google.la/url?q=https://www.weightloss-social.com/
 <a href="cse.google.tg/url?q=https://www.weightloss-social.com/">Weight Loss Social</a>
 <a href="clients1.google.tg/url?q=https://www.weightloss-social.com/">Weight Loss Social</a>
 <a href="clients1.google.com.vc/url?q=https://www.weightloss-social.com/">Weight Loss Social</a>
